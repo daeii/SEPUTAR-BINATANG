@@ -1,0 +1,2 @@
+# SEPUTAR-BINATANG
+blog pribadi
